@@ -5,8 +5,8 @@
 
 ### *Vem Joga Comigo !*
 
-- 🎮 Jogos :
-- 🎧 Meu DC: 
+- 🎮 Jogos : Minecraft, Osu, CodBO2 e Lol
+- 🎧 Meu DC: Alaska 冬#6759
 
 #                                                                    🎧 *Minha playList*
 
@@ -18,12 +18,12 @@
 
 <img align="right" alt="GIF" src="https://cdn.discordapp.com/attachments/825551954662522911/846497114628161546/image0.gif" />
 
-- 
-- 
-- 
-- 
-- 
+- Darling the Franxx
+- kuzu no honkai
+- One Piece
+- Hunter x Hunter
+- Tokyo Ghoul
 # *Filmes*
-- 
-- 
-- 
+- A viajem de chihiro
+- V de vingança
+- Evangelion
