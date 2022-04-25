@@ -7,7 +7,7 @@
 
 - Nick discord: Darlingpriv.#0002
 - Nick lol mobile: Vai dar td certo#002
-#                                                                    🎧 *Minha playList*
+#                                                                    🎧 *My playList*
 
 </p>
 <a href="https://open.spotify.com/user/314xjtrxlkqo5kz6doztbib23lx4?si=500205afab594af8" target="blank"><img align="center" src=https://i.pinimg.com/originals/46/2e/87/462e8760149728015a5e671e05becc6d.gif alt="Dessapossed" height="350" width="1012" /></a>
